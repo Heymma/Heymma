@@ -18,7 +18,7 @@ I enjoy learning step by step, experimenting with code, and refining my skills u
 
 ## 📍 Quick Facts
 - 🌍 Based in **Nigeria**  
-- 🖥️ Portfolio: [Ezeatu Emmanuel Portfolio](https://sites.google.com/view/ezeatuemmanuel/home?authuser=0)  
+- 🖥️ Website: [Ezeatu Emmanuel Portfolio](https://sites.google.com/view/ezeatuemmanuel/home?authuser=0)  
 - ✉️ Contact: **ezeatunwachukwu@gmail.com**  
 - 💼 LinkedIn: [Ezeatu Emmanuel](https://www.linkedin.com/in/ezeatu-emmanuel-981979257?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
 - 🐦 Twitter (X): [@Barthenry17](https://twitter.com/Barthenry17)  
